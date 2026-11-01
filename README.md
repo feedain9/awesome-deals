@@ -19,6 +19,7 @@
 * [Pepper.ru](https://www.pepper.ru/) - Russia: Promo codes and deals
 * [iGraal.com](https://www.igraal.com/) - France: Promo codes
 * [Poulpeo.com](https://www.poulpeo.com/) - France: Promo codes
+* [FreeDiscountCoupons.com](https://freediscountcoupons.com) - Global: Verified coupons, promo codes, and deals from thousands of stores
 
 ## Articles
 
